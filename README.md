@@ -1,4 +1,4 @@
-# Theta Token Sale
+# GPC Token Sale
 
 ## Introduction
 
